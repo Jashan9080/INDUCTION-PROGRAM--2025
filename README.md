@@ -24,4 +24,17 @@ After the two lectures we had English and maths proficiency test to test us abou
 ### Causmic club introduction 
 After reciting and remembering almighty the god.. the third day of the induction program started as the third year students of our college gave us a breif on the various clubs and especially About causmic club of our college. Taran mam with her team which all our only the students too gave us brief and told us that the interested ones can join the club be at positions after clearing the interviews also showed us reels and instagram handle of this club 
 ### Universal human values lecture-2 by Dr. Priya darshini mam 
-in this 
+in this lecture of uhv too priya darshini mam told us about how important all three- Right understanding, physical facilities, and relationship are important equally and interacted with us
+### Introduction to motorsports by Gautam sir 
+Our college prestigious student Gautam sir told us about the introduction to motorsports and that is not only limited to racing it includes a wide study and prospects to explore.
+### Lecture by Prof. Jaswant Singh sir 
+The third day ended with the lecture by Prof. Jaswant Singh sir for Mechanical engineering students about coding and programming and with a breif interactive intro session.
+### Also college and the officials told us about Satya scholarship program by government 
+# Day-4 ( 5th of August 2025)
+On the fourth day of induction program our college started at 1:30 pm in the afternoon
+### Started with the lecture by Gautam sir in The Tcc sem hall
+Though i reached a bit late .. but not that much.. Gautam sir told us mechanical and RAI students about motorsports ...the importance of all branches in building a successful moto car and also the importance of milliseconds and introduced us to a member who made a rc car and won a tournament.
+### Lecture by Mrs. Shaffy Makkar mam in the college about -- Millets super food 
+We all were then called in the auditorium to attend a lecture on millets as a super food In this interesting and unique topic mam told us about the importance and different types of millets that we should include in our diet daily and how to eat and make the properly. She also told us about the preparation of Millets at home and also things like yakult at home.
+with this the fourth day ended with two important lectures which gave us knowledge 
+
