@@ -20,3 +20,8 @@ our day started in the auditorium by our first lecture about the subject Univers
 after our lecture on uhv-1 .. Arvind Dhingra sir told us about the importance of personality and skills in an engineer's life. With exciting games and interactive talk he made the session interesting.
 ### Ended with Proficiency tests 
 After the two lectures we had English and maths proficiency test to test us about the knowledge of basic of these two subjects. By this the second day of induction program ended.
+# Day -3 ( 4th of August 2025)
+### Causmic club introduction 
+After reciting and remembering almighty the god.. the third day of the induction program started as the third year students of our college gave us a breif on the various clubs and especially About causmic club of our college. Taran mam with her team which all our only the students too gave us brief and told us that the interested ones can join the club be at positions after clearing the interviews also showed us reels and instagram handle of this club 
+### Universal human values lecture-2 by Dr. Priya darshini mam 
+in this 
