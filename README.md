@@ -47,4 +47,10 @@ In the auditorium, our college called a prestigious personality of Punjab,of not
 Then thirdly in the auditorium the ncc members or leaders gave us a brief about ncc , what is NCC, why to join it and also showed us a slideshow. Then we all stand up and with a huge round of applause welcomed Brigadier P.S Cheema sir. Then after Speaking Jai hind.. he told us about discipline, Ncc, few lines pf poetry which had deep meaning and also about the achievements. 
 ### Id card formation for Mechanical A students 
 the day finally ended with the photo and verification of adhar card for college id card in between 2-4 pm
-# Day -6 
+# Day -6 ( 7th of August 2025)
+### First P2P lecture 
+The sixth day of the induction program started with my first p2p lecture at 9:30 am in the room no. f-106 which was taken by our seniors , the students of third year gne. They gave us a basic about coding and programming and also made us understand About programming, algorithm, pseudo codes with the help of examples easy to understand and we also coded in c++ through our phones. That was really interesting 
+### English Lecture by Prof. Nisha Mam 
+After the p2P lecture our English mam Nisha mam came and told us to get ready to introduce ourselves atleast a 30 seconds introduction including key points like name achievements strengths weakness hobbies etc. And then called us one by one few of us to introduce ourselves infront of everyone. My turn also came and after my introduction she very politely told me what I getting or speaking wrong. Then she told us the importance od proficiency in our second language English like our mother tongue by using the Listening speaking reading writing rule. Then with few intros she gave us a brief about the skill subject which included everything. 
+### Lecture by Dr. Lakhvir Singh Khana ( Incharge - Cml)
+After the break we were all called in the auditorium where dr lakhvir sir In a fun loving and interacting way gave us information about the multi facetted learning which is not a club or society. But one can join who has interest and views related to it. It organises functions related other than sports and cultural. Then he told us about the Sites in which we can do free course with a fees strating only 1000 rs given by semester once by college in which iit teachers teach different things in sites like NPTEL and 
