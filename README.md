@@ -37,4 +37,14 @@ Though i reached a bit late .. but not that much.. Gautam sir told us mechanical
 ### Lecture by Mrs. Shaffy Makkar mam in the college about -- Millets super food 
 We all were then called in the auditorium to attend a lecture on millets as a super food In this interesting and unique topic mam told us about the importance and different types of millets that we should include in our diet daily and how to eat and make the properly. She also told us about the preparation of Millets at home and also things like yakult at home.
 with this the fourth day ended with two important lectures which gave us knowledge 
-
+# Day-5 ( 6th of August 2025)
+The fifth day of our induction program started with the lectures in the auditorium at 9:30 am 
+### Lecture by Dr. Parminder Singh sir ( Dean student welfare)
+In this lecture Parminder sir told us all about the college -- The classrooms, staff members, teachers, all the facilities offered by the college which included dispensary, ambulance service, canteens, banks ATMs, etc. and also gave us a brief on sports grounds sports activities and all the clubs and scholarships too.
+### Expert Lecture by Mr. Manpreet Singh sir about Fitness for Engineers 
+In the auditorium, our college called a prestigious personality of Punjab,of nothern India who told us about the importance of physical strength, fitness and exercise whether in ground of gyms. He delivered all the things in our or his mother language Punjabi which was a plus positive point too. Then he called few students from audience as volunteers who can do pushups well after this he told us about the right posture to do it. Then at last he answered the students queries about Gym, steroids, protein intake, supplements, exercise, weight loss or gain, what to do what not to do and also gave a strong lecture on to stay away from alcohol and drugs.
+### Expert lecture by NCC team and also Brigadier P.S Cheema sir
+Then thirdly in the auditorium the ncc members or leaders gave us a brief about ncc , what is NCC, why to join it and also showed us a slideshow. Then we all stand up and with a huge round of applause welcomed Brigadier P.S Cheema sir. Then after Speaking Jai hind.. he told us about discipline, Ncc, few lines pf poetry which had deep meaning and also about the achievements. 
+### Id card formation for Mechanical A students 
+the day finally ended with the photo and verification of adhar card for college id card in between 2-4 pm
+# Day -6 
