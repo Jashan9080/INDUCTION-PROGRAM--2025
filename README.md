@@ -59,7 +59,16 @@ this interesting lecture by NSS society started with the members giving a peacef
 ## After many days of clubs recruitment interviews ,activities and study lectures we again had the continuation of induction program on 30 August, 2025 
 ### 30 August 2025 ( Saturday)
 We the students of branches excluding CSE and IT were called on Saturday for the continuation of induction program in auditorium. The day started with our very respected HOD Mam interacting with us and telling us about the exams structure and some valuable talks until the guest arrived.
-### Lecture by valuable professor from PAU about FOOD 
-The first interactive session was about the topic food
+### Lecture by Dr. Arshdeep singh sir professor from PAU about FOOD 
+The first interactive session was about the topic food by Dr. Arshdeep Singh sir from pau . He gave us a learning and meaningful lecture about food and balanced diet and also cleared myths about food, gym supplements, protein intake etc. Students also asked their doubts related to food.
+### Lecture or interactive session by Dr. Jaswinder Singh Sir ( Jaswins lab on wheels) 
+Then after the lecture about food came a fun and learning session by famous Dr. Jaswinder Singh sir . honestly me and mom had watched his several learning videos about learning maths and science in fun and practical way on Facebook.Sir gave us the tricks or methods to solve big mathematics operation based problems in seconds and explained us about the importance of Dhyaan ( focus) and importance of ਨਾਮ ਜਪਣਾ( praying to god almighty)
+and by calling several student volunteers on stage perfomed several science practicals in fun way. A loving and most fun session ill say.
+### Knowledge about Google Gemini by our seniors 
+Then after these two sessions.. our 2 of the seniors introduced and told us about the importance and about Google Gemini and told us about the benefits and event.
+### Knowledgeable session by Riya Arora Mam ( Maac institution and ACGC OWNER AND CO FOUNDER)
+Then From maac Ludhiana came riya Arora mam whose team and company had worked in famous Bollywood movies vfx and animation etc. She in her lecture told us about the maac event happening at guru nanak bhawan Ludhiana on 27 September which would also feature famous Punjabi director -- Rohit Jugraj. She also told and showed us videos of her work and events, awards. She told us who so ever want to be animator, graphic designer, game designer and wanna know about films can join maac and be successful. The session ended with mam exciting and firstly singing a beautiful song witn us all.
+### Lastly orientation session by executive members of various clubs 
+After all these sessions firstly the members of mathemagic club told us about their club, why would we join them and them upcoming event happening. Then the members of english club through a skit told us how to and how not to present yourself in an interview and told us about their club. Lastly the members of chemovate society also told us the same and then this day also ended at the college induction program.
 # Conclusion 
 Overall talking about my college experience in this few days. i would say it was the best experience of my life which marked a beginning to the new journey of my life. In this few days i got familiar to college, faculty, my new batchmates which were slowly becoming my friends , friendly and caring teachers, seniors. I loved all the lectures and activities happened in this induction program and i hope ill excel and do well in my these four years of btech. I loved my decision of choosing GNDEC Ludhiana as my career deciding place or say a second home.
