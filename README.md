@@ -1,6 +1,7 @@
 # INDUCTION-PROGRAM--2025
-Jashanpreet Singh chawla ( Btech mechanical engineering 1st yr)
+Jashanpreet Singh chawla ( Btech mechanical engineering 1st yr) (MEA2)
 Registration no.- 25103668
+Class roll no.- 2530048
 Mobile no.-9872460048
 E-mail - jashanchawla290@gmail.com
 # Day-1 
